@@ -30,5 +30,14 @@ am freed from emotions;
 didn't jump up during my neighbor's criticizes;
 cleaned partly my place
 
+2014 3 9
+woke up early in the morning;
+a friend baked a cake for us;
+my neighbors chatted with my friend;
+we played ping-pong and badminton;
+my friends met;
+we planed to share things that we like;
+all of us came back home without harm in the night;
+am ready to welcome more friends at home
 
 [TO BE CONTINUED .. ]
