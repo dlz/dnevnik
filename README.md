@@ -32,9 +32,11 @@ cleaned partly my place
 
 2014 3 9
 woke up early in the morning;
+talked with my family on phone;
 a friend baked a cake for us;
 my neighbors chatted with my friend;
 we played ping-pong and badminton;
+played with a young guy who invited us to join a game;
 my friends met;
 we planed to share things that we like;
 all of us came back home without harm in the night;
