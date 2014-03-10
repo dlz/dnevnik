@@ -42,4 +42,16 @@ we planed to share things that we like;
 all of us came back home without harm in the night;
 am ready to welcome more friends at home
 
+2014 3 10
+listened to someone I like a lot;
+practiced the altruism by answering to a questionary;
+joined a team as the eighth member;
+met a person that I expected;
+took the person with me to a place I like;
+shared my stock with a good friend;
+chatted peacefully with people whom I don't know well;
+an acquaintance advised me efficiently;
+got a chance to share my family story;
+went into a library
+
 [TO BE CONTINUED .. ]
