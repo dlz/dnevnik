@@ -49,7 +49,11 @@ joined a team as the eighth member;
 met a person that I expected;
 took the person with me to a place I like;
 shared my stock with a good friend;
+met a stuff and decided with her on the form of a work that I plan to do;
 chatted peacefully with people whom I don't know well;
+got emails from a supervisor;
+contacted twice a former tutor of mine;
+embedded some codes into a platform to make it suits my new project;
 an acquaintance advised me efficiently;
 got a chance to share my family story;
 went into a library
