@@ -58,4 +58,12 @@ an acquaintance advised me efficiently;
 got a chance to share my family story;
 went into a library
 
+2014 3 11
+chatted with a friend on a bench;
+printed 20 pages to show my advisor on time;
+visited the library with him;
+promised quickly a hang out;
+back home early;
+found some food
+
 [TO BE CONTINUED .. ]
