@@ -66,4 +66,10 @@ promised quickly a hang out;
 back home early;
 found some food
 
+2014 3 12
+the kitten was home;
+a friend came to join me;
+was almost peaceful inside;
+observed some unique rhythms of life
+
 [TO BE CONTINUED .. ]
