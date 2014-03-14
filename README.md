@@ -72,4 +72,18 @@ a friend came to join me;
 was almost peaceful inside;
 observed some unique rhythms of life
 
+2014 3 13
+got some news of a friend who has been constructive for me;
+played tennis;
+returned those books;
+enjoyed chess games;
+
+2014 3 14
+a friend waited for me;
+blocked anonymous calls;
+got almost sufficient contents to work on;
+had a nice lesson;
+chatted with a girl, who changed haircut, on some technical things;
+ate and drunk
+
 [TO BE CONTINUED .. ]
