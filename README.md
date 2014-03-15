@@ -86,4 +86,12 @@ had a nice lesson;
 chatted with a girl, who changed haircut, on some technical things;
 ate and drunk
 
+2014 3 15
+went to many places with a friend;
+visited a church with a group;
+got haircutted by a gentle lady;
+changed a routine as being suggested;
+bought an accessory;
+traveled free of charge
+
 [TO BE CONTINUED .. ]
