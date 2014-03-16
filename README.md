@@ -94,4 +94,12 @@ changed a routine as being suggested;
 bought an accessory;
 traveled free of charge
 
+2014 3 16
+makeupped by friends;
+applied some polish on a friend's nails;
+tasted with them the "mysterious blend tea";
+knew that my sadness was only tiny;
+delayed sms arrived at once;
+we are all home in the night without harm
+
 [TO BE CONTINUED .. ]
