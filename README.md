@@ -102,11 +102,19 @@ knew that my sadness was only tiny;
 delayed sms arrived at once;
 we are all home in the night without harm
 
+2014 3 17
+chatted with an elegant woman who is stable inside;
+a nice person suggested to me a meet up with his beloved one
+
+2014 3 18
+got neat advices from my advisor;
+enjoyed some snacks for free
+
 2014 3 19
 encouraged by a person whom I suppose to help, he said that I was strong;
 got enough content to work on;
 did twice arm wrestling with a girl, she was stronger;
-wished hapiness of a former pal;
+wished happiness of a former pal
 
 
 [TO BE CONTINUED .. ]
