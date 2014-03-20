@@ -116,5 +116,11 @@ got enough content to work on;
 did twice arm wrestling with a girl, she was stronger;
 wished happiness of a former pal
 
+2014 3 20
+chatted with friends;
+sometimes you think it is the end, but it may just be a turning point towards another road;
+played chess games;
+am taught to playing the combination of knight and pawn to make a queen
+
 
 [TO BE CONTINUED .. ]
