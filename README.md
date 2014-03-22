@@ -122,5 +122,9 @@ sometimes you think it is the end, but it may just be a turning point towards an
 played chess games;
 am taught to playing the combination of knight and pawn to make a queen
 
+2014 3 21
+got very very useful advice from a nice woman;
+we played chess together, shared some joyful moments together, went to a bar I knew with friends
+
 
 [TO BE CONTINUED .. ]
