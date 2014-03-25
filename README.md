@@ -126,5 +126,12 @@ am taught to playing the combination of knight and pawn to make a queen
 got very very useful advice from a nice woman;
 we played chess together, shared some joyful moments together, went to a bar I knew with friends
 
+2014 3 23
+visited two museums, rode bicycle, went across a bridge, circled the golden triangle, saw embassies, all with a friend;
+learnt about a culture that is new to me;
+created an account and played online
+
+2014 3 25
+a supervisor of our collectivity provided me an opportunity to conduct a new course;
 
 [TO BE CONTINUED .. ]
