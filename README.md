@@ -134,4 +134,9 @@ created an account and played online
 2014 3 25
 a supervisor of our collectivity provided me an opportunity to conduct a new course;
 
+2014 3 26
+printed out a manual;
+checkmated in a blitz
+
+
 [TO BE CONTINUED .. ]
