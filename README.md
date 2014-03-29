@@ -138,5 +138,14 @@ a supervisor of our collectivity provided me an opportunity to conduct a new cou
 printed out a manual;
 checkmated in a blitz
 
+2014 3 27
+a friend stayed at ours, we cooked, played, chatted;
+
+2014 3 28
+walked around in the campus, sat in the verdure, chatted with a friend;
+expressed my gratitude to the nice woman who had given me advice;
+exchanged phone number with a friend;
+a friend found me more confident than I was one week ago
+
 
 [TO BE CONTINUED .. ]
