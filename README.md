@@ -147,5 +147,12 @@ expressed my gratitude to the nice woman who had given me advice;
 exchanged phone number with a friend;
 a friend found me more confident than I was one week ago
 
+2014 3 29
+went to a bar with a friend;
+went around with her singing
 
-[TO BE CONTINUED .. ]
+2014 3 30
+got messages
+
+2014 3 31
+a finest suprise that I would not dare to imagine
